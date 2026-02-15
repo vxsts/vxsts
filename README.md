@@ -13,4 +13,4 @@ I specialize in Web Security and Reconnaissance. Passionate about securing the d
 *   **Bugcrowd** - Security Researcher.
 
 ---
-[LinkedIn](LINK_LINKEDIN_LU) | [My Story](LINK_KOMPASIANA_LU)
+[LinkedIn](https://www.linkedin.com/in/nizham-hafiy/) | [My Story]([LINK_KOMPASIANA_LU](https://www.kompasiana.com/image/nizhamhafiy8922/698b39d9ed64154b6542a9f2/nizham-hafiy-siswa-sman-4-kabupaten-tangerang-diapresiasi-nasa-usai-menemukan-celah-keamanan-pada-nasa?page=1))
